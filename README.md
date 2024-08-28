@@ -1,4 +1,4 @@
-### Bem vindosao meu perfil 
+### Bem vindos ao meu perfil 
 
 Meu nome é Ana Vitória de Lima Almeida
 
